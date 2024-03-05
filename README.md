@@ -1,0 +1,7 @@
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/2fd00ae3-e93a-45e8-a667-60c97da9b018)
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/61ee33c8-ac75-483f-a004-28295d91365b)
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/b2cdf121-1a59-4f05-85dc-1d7a3a47d0d3)
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/08cc400b-2717-4e00-b8c2-26a9e0bd4df1)
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/06655b19-3913-4d3c-bb8f-978d49eda4a5)
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/0d2f40fc-1a6a-494a-b99f-cab770d1c782)
+![image](https://github.com/OvlayevaMohidil/Food/assets/159124258/04f83c98-3d66-42fb-885c-a0920aa75e47)
